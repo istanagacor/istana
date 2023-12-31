@@ -6,7 +6,7 @@ date: 2023-12-31
 
 # IstanaSlot: Pilihan Terbaik untuk Pengalaman Slot Gacor Terbaik
 
-[![daftar istana slot]([iss99.com/assets/img/iss/button-daftar.webp] "daftar istana slot")](https://iss777.us/iss)
+[![daftar istana slot]([https://iss99.com/assets/img/iss/button-daftar.webp] "daftar istana slot")](https://iss777.us/iss)
 
 
 ![istanaslot!](https://iss99.com/assets/img/iss/banner-iss.jpg "istanaslot")
