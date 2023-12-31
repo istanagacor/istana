@@ -42,4 +42,4 @@ Beberapa Link Alteratif Resmi dari ISTANASLOT :
 5.[GANGSTER4D](https://gangsterslot.wiki/)
 6.[RTP ISTANASLOT](https://rtp-istanaslot.netlify.app/)
 
-
+<a href="https://istanaslot1.xyz">istanaslot1</a>
